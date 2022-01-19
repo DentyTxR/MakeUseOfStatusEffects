@@ -1,3 +1,0 @@
-# MakeUseOfStatusEffects
-MakeUseOfStatusEffects eee
-troll
